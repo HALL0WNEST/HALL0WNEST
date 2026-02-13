@@ -5,4 +5,4 @@
 
 <p align="center">i don't care for dni lists. i block proshippers, gen.ai users, & spawnists. i won't interact with endogenic systems. that's about it 👍</p>
 
-<p align="center"> other things i like include: hollow knight & silksong (who couldve guessed), undertale & deltarune, phighting, alien stage, & knights of guinevere</p>
+<p align="center"> other things i like include: hollow knight & silksong (who couldve guessed), undertale & deltarune, phighting, alien stage, and knights of guinevere</p>
