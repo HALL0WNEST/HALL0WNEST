@@ -1,4 +1,4 @@
-<p align="center">HALLOW or KIEL<br/>any/all<br/>audhd + osdd </p>
+<p align="center">HALLOW or KIEL<br/>any/all　18 in like 10 days<br/>audhd + osdd </p>
 <p align="center">i don't take pony game seriously. i enjoy pony watching (heh. funny joke) </p>
 
 <p align="center"> alterhuman system. use singular pronouns or not idc. the legend of zelda is my special interest. </p>
