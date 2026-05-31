@@ -1,8 +1,5 @@
-<p align="center">HALLOW or KIEL<br/>any/all<br/>audhd + osdd </p>
-<p align="center">i don't take pony game seriously. i enjoy pony watching (heh. funny joke) </p>
+<p align="center">HALLOW or KIEL<br/>any/all </p>
 
-<p align="center"> system and alterhuman. the legend of zelda is my special interest. </p>
+<p align="center"> DNI PROSHIP. </p>
 
-<p align="center"> other things i like include: hollow knight & silksong (who could've guessed), undertale & deltarune, sally face, ado, and knights of guinevere </p>
-
-<p align="center"> dni lists are whatever. basic dni i guess. proshippers, sh/ed communities, & spawnists i will specifically signal out as groups i will not interact with. i'm not pro-endo. that's about it 👍 </p>
+<p align="center"> make your websites accesible i cannot read half of your shit. you can make an easyread on rentry super easy by using the metadata ACCESS_EASY_READ = rentry url. This means PLAIN TEXT and little to no markdown. Make sure you describe the link if you link things (ie. a link to a wiki page being called "link to (wiki page name) wiki" and not just saying "info can be found here" </p>
